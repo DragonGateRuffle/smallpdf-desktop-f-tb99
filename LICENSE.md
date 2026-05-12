@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://DragonGateRuffle.github.io/smallpdf-desktop-f-tb99/) |
  |---------------------|----------------------:|
 
 
